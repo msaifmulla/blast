@@ -1,2 +1,3 @@
 # blast
-trying something new
+trying something newwe 
+we have to do some work on it because we have to learn about it...
